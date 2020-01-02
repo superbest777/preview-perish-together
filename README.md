@@ -1,1 +1,1 @@
-# preview-perish-together
+# 同归于尽复习法。给你的朋友发这个，和你的朋友一起同归于尽
